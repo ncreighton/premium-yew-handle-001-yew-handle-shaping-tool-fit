@@ -1,0 +1,2 @@
+# premium-yew-handle-001-yew-handle-shaping-tool-fit
+Tired of handles that crack, slip, or just feel wrong in your hand? Yew's tight grain and natural spring demand a precise fit—one wrong step and you've wasted hours of labor.  The Yew Handle Shaping &amp; Tool Fit Craft Studio eliminates guesswork with a structured Notion workspace that guides you from log selection to final fitting. Track grain orient
